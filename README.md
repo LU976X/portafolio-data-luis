@@ -9,7 +9,8 @@ Me interesa utilizar datos para optimizar procesos y mejorar la toma de decision
 
 Contacto
 - Email: carnage066@hotmail.com
-- LinkedIn: (pega tu link aquí)
+- LinkedIn: www.linkedin.com/in/luise-cortesc
+  
 
 ---
 
